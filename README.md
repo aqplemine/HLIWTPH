@@ -14,3 +14,4 @@ games and stuffs we like own:
 - "hi lol idk what to put here" - 150+ group members
 - "HLIWTPH Staff Members" - 3+ group members (special group)
 - and more haha
+- irs open up is owned by the groups owner, not the group itself.
